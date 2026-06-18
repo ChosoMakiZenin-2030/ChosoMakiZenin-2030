@@ -12,5 +12,4 @@ Here are some ideas to get you started:
 -  🎶 pode me perguntar sobre músicas, filmes , desenhos e etc
 - 👻  meus amigos me chamam de fantasma
 
-
-![](<img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/8fd729dd-1553-47c1-a373-77d95eec4400" />)
+![](https://media.tenor.com/MxvpvgOBBX8AAAAd/inosuke-dance-funny.gif)
