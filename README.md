@@ -8,5 +8,4 @@
 - 👻  meus amigos me chamam de fantasma
 
 ![](https://media.tenor.com/MxvpvgOBBX8AAAAd/inosuke-dance-funny.gif)
-![](https://media.tenor.com/M7EgEnWJKA0AAAAC/tyler-tyler-the-creator.gif)
 ![](https://media.tenor.com/NQxYKPkDbv8AAAAd/corinthians-sccp.gif)
